@@ -1,1 +1,1 @@
-# fooshoescom TAKEOVER by Azod
+# fooshoescom by Azod
